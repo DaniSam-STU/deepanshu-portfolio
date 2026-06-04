@@ -223,6 +223,6 @@ If you encounter any issues:
 
 ---
 
-**Created with ❤️ for Deepanshu Semwal**
+**Created with ❤️ By DAani Sam**
 
 Last Updated: 2026
